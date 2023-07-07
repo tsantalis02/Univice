@@ -1,1 +1,1 @@
-# Univice  <img src="Univice/Logo/high-resolution-logo-white-transparent.png">
+# Univice  <img src="Univice/Logo/Univice_logo.png">
