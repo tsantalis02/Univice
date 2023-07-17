@@ -12,6 +12,7 @@
 <p>Στις <strong>2 Ιουνίου</strong> συμμετείχαμε στον <strong>Εθνικό Τελικό του 9ου Φοιτητικού Διαγωνισμού Καινοτομίας και Επιχειρηματικότητας “JA Start Up 2023”</strong> του Junior Achievement Greece στο Κέντρο Πολιτισμού «Ελληνικός Κόσμος», όπου παρουσιάσαμε την επιχειρηματική μας ιδέα και λάβαμε την <strong>4η θέση με 340 ψήφους</strong> για το Public Choice Award.</p>
 <img src="Univice/Public_Choice_Award_Votes.jpg" style="display: block; margin-right: auto; margin-left: auto;">
 <br><br>
+<p>Και με <strong>ποσοστά</strong>:</p>
 <img src="Univice/Public_Choice_Award_Percentage.jpg" style="display: block; margin-right: auto; margin-left: auto;">
 <p>Παρόλο που ήμασταν μία από τις πιο "άπειρες" ομάδες του διαγωνισμού, ήταν μια ομόρφη και αξέχαστη εμπειρία από την οποία αποκομίσαμε σημαντικές γνώσεις και αναπτύξαμε διάφορα skills μας. Φωτογραφικό υλικό από την συμμετοχή μας στον διαγωνισμό αλλά και διάφορα άλλα post σχετικά με την ιδέα μας μπορείται να δείτε στην σελίδα μας στο <strong>Facebook</strong>.</p>
 <p><strong>📫 How to reach us</strong></p>
